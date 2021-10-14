@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sanket2499
+- 👋 Hi, I’m @SanketMore1099
 - 👀 I’m interested in learning code
 - 🌱 I’m currently learning web development
-- 📫 How to reach me smore711@gmail.com
+- 📫 Reach me at : smore711@gmail.com
